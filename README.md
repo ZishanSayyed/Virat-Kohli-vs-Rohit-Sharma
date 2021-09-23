@@ -1,0 +1,2 @@
+# Virat-Kohli-vs-Rohit-Sharma
+On 16 Sep 2021, Virat Kohli announced that he will quit his T20 captaincy and give it to Rohit Sharam So, I thought let’s compare the performance of both players and See their Stats and Records across all formats (Test, ODI, T20) and see who is better batsmen and see who is a better caption  And comment on Is The Decision of Virat Kholi of quitting the captaincy of T20 is right or not
